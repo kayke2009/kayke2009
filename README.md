@@ -4,4 +4,4 @@ sou da área da gastronomia [patisserie e boulangerie]
 💍 23/05/2024
 👀 jogo volei 
 moro em manfrinópolis
-cesc [colégio estadual são cristovão]
+estudo no cesc [colégio estadual são cristovão]
